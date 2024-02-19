@@ -4,7 +4,7 @@
 
 Me chamo Cauê, tenho 21 anos. Atualmente dedico meu tempo para aprendizado e desenvolvimento na área de Desenvolvimento Front End.
 
-Após cerca de 4 anos inserido no mercado de trabalho decidi dar um passo a frente e focar no meu futuro profissional. Novos desafios e uma nova área de atuação, fazem parte do meu cotidiano. O Desenvolvimento Web e também o design, mudaram minha forma de ver o mundo. Áreas que sempre me interessei, mas nunca tive foco e coragem o suficiente para migrar para essas atividades. Atualmente fiz da minha rotina uma busca por conhecimento e capacitação, para poder entrar no mercado com segurança e competência.
+Após cerca de 4 anos inserido no mercado de trabalho decidi dar um passo a frente e focar no meu futuro profissional. Novos desafios e uma nova área de atuação, fazem parte do meu cotidiano. O Desenvolvimento Web e também o Design, mudaram minha forma de ver o mundo. Áreas que sempre me interessei, mas nunca tive foco e coragem o suficiente para migrar para essas atividades. Atualmente fiz da minha rotina uma busca por conhecimento e capacitação, para poder entrar no mercado com segurança e competência.
 
 Qualquer dúvida entre em contato comigo, será um prazer conversar com você!
 
